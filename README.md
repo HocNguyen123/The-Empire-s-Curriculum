@@ -1,1 +1,1 @@
-# The-Empire's-Curriculum
+# The Empire's Curriculum
